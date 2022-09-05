@@ -1,2 +1,2 @@
 # Collaborated
-Collaborated with study independen
+Open Collaborated
